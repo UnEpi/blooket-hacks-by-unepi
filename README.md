@@ -1,1 +1,1 @@
-# blooket-hacks-by-unepi
+This is a list of blooket hacks made by me, UnEpi. If you are seeing this, then I am either showing it to you, or you somehow found it on your own, kudos to you. It has all of the blookets hacks you need and it is constantly being updated.
